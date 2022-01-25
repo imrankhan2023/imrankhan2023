@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Python, Artificial Intelligence, Machine Learning**
 
-- 📫 You can collab0https://www.instagram.com/mr_inferio/rate with me at **inandasimrankhan@gmail.com**
+- 📫 You can collaborate with me at **inandasimrankhan@gmail.com**
 
 - ⚡ Fun fact **You think You know me well, Nah nah nah! 🤓**
 
