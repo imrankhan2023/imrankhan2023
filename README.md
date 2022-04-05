@@ -12,9 +12,11 @@
 
 - 💬 Ask me about **Python, Git hub, Social media marketing, UX design etc**
 
-- 📫 How to reach me **inandasimrankhan01@gmail.com**
+- 📫 You can reach me here **inandasimrankhan01@gmail.com**
 
 - ⚡ Fun fact **You think you know me **
+
+- 🤝 Ready to collabrate on interesting projects..
 
  
 
