@@ -14,7 +14,7 @@
 
 - 📫 You can reach me here **inandasimrankhan01@gmail.com**
 
-- ⚡ Fun fact **You think you know me **
+- ⚡ Fun fact   **You think you know me **
 
 - 🤝 Ready to collabrate on interesting projects..
 
